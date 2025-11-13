@@ -1,2 +1,2 @@
-# 2nd-Weak-Ass
+# 2nd-Week-Ass
 ass
